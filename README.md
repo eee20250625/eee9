@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://cg10-1.pages.dev/">不打烊黑料网网页</a>
 
-点击访问：<a href="https://cg06-1.pages.dev/">伊人</a>
+点击访问：<a href="https://cg47-1.pages.dev/">50度灰</a>
 
 点击访问：<a href="https://hl378.pages.dev/">黑料社区永久</a>
 
@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://cg85.pages.dev/">精彩影视</a>
 
-点击访问：<a href="https://cg32-1.pages.dev/">伊人</a>
+点击访问：<a href="https://cg361-2.pages.dev/">吃瓜</a>
 
 点击访问：<a href="https://cg70-1.pages.dev/">51吃瓜</a>
 
